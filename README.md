@@ -1,4 +1,4 @@
-[discord](https://discord.com/user/1102042422898335754)
+[discord](https://discordlookup.com/user/1102042422898335754)
 [behance](https://behance.net/dreidelman)
 [last.fm](https://last.fm/user/thaigrl)
 [steam](https://steamcommunity.com/id/contrapuntal)
